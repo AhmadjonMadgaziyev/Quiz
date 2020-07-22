@@ -1,1 +1,1 @@
-# Quiz
+# Quiz - updated Ahmadjon Madgaziyev
